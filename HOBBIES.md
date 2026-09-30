@@ -1,0 +1,3 @@
+Sleeping
+Gaming
+Eating Sweets
